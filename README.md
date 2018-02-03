@@ -1,0 +1,1 @@
+# full-wide-HotelDilux
